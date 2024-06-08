@@ -1,5 +1,5 @@
 # 💫 About Me:
-Meet me<br> Mohd Faisal, a dedicated professional currently working at Blubook Solution Pvt Ltd.<br> Beyond my passion for technology, <br>I am an ardent gastronome and avid horticulturist. When I am not immersed in coding and problem-solving, you'll often find me experimenting with new recipes in the kitchen or tending to my flourishing garden oasis
+Meet me<br> Mohd Faisal, a dedicated professional currently working at Blubook Solution Pvt Ltd.<br> Beyond my passion for technology, <br>I am an ardent gastronome and avid horticulturist. When I am not immersed in coding and problem-solving, you'll often find me experimenting with new recipes in the kitchen or tending to my flourishing garden oasis.
 
 
 ## 🌐 Socials:
